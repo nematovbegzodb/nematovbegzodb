@@ -1,2 +1,2 @@
-### Assalomu Alaykum, I'm Nematov Begzod.
+### Assalomu Alaykum, my name is Begzod Nematov age:22
 
